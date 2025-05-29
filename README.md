@@ -58,4 +58,4 @@ Insights into AtliQ’s market share against competitors.
 
 📬 Contact:
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/gajanand-vagile-d9/) or reach out via gajanandvaghile2003@gmail.com for any questions or collaboration opportunities.
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/suyash-kusumkar/) or reach out via kusumkarsuyash1234@gmail.com for any questions or collaboration opportunities.
